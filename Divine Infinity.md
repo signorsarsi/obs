@@ -1,0 +1,2 @@
+#concept 
+[[Geljon Albert-Kees]] in [[Divine Infinity in Gregory of Nyssa and Philo of Alexandria]] adfirms that [[Ekkehard Muhlenberg]] believes that  [[Gregory of Nissa]] has been the first to confer to God the predicate  of Divine Infinity
