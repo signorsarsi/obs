@@ -1,0 +1,2 @@
+According to [[Plutarch]] in [[Diels]] Petron, 16. 
+Petron was a philosopher from Imeri (Termini Imerese) que set forth that the worlds are not  infiniter or just one, but are  183. Like a triangle where there are 60 worlds for each  edges  and 1 for every vertex.
