@@ -1,0 +1,11 @@
+Liber I Quest. 3 Art.4
+
+Ad quartum sic proceditur. Videtur quod in Deo non sit idem essentia et esse. Si enim hoc sit, tunc ad esse divinum nihil additur. Sed esse cui nulla fit additio, est esse commune quod de omnibus praedicatur, sequitur ergo quod Deus sit ens commune praedicabile de omnibus. Hoc autem est falsum, secundum illud Sap. XIV, _incommunicabile nomen lignis et lapidibus imposuerunt_. Ergo esse Dei non est eius essentia.
+
+Respondeo dicendum quod Deus non solum est sua essentia, ut ostensum est, sed etiam suum esse. Quod quidem multipliciter ostendi potest.
+
+Primo quidem, quia quidquid est in aliquo quod est praeter essentiam eius, oportet esse causatum vel a principiis essentiae, sicut accidentia propria consequentia speciem, ut risibile consequitur hominem et causatur ex principiis essentialibus speciei; vel ab aliquo exteriori, sicut calor in aqua causatur ab igne. Si igitur ipsum esse rei sit aliud ab eius essentia, necesse est quod esse illius rei vel sit causatum ab aliquo exteriori, vel a principiis essentialibus eiusdem rei. Impossibile est autem quod esse sit causatum tantum ex principiis essentialibus rei, quia nulla res sufficit quod sit sibi causa essendi, si habeat esse causatum. Oportet ergo quod illud cuius esse est aliud ab essentia sua, habeat esse causatum ab alio. Hoc autem non potest dici de Deo, quia Deum dicimus esse primam causam efficientem. Impossibile est ergo quod in Deo sit aliud esse, et aliud eius essentia.
+
+Secundo, quia esse est actualitas omnis formae vel naturae, non enim bonitas vel humanitas significatur in actu, nisi prout significamus eam esse. Oportet igitur quod ipsum esse comparetur ad essentiam quae est aliud ab ipso, sicut actus ad potentiam. Cum igitur in Deo nihil sit potentiale, ut ostensum est supra, sequitur quod non sit aliud in eo essentia quam suum esse. Sua igitur essentia est suum esse.
+
+Tertio, quia sicut illud quod habet ignem et non est ignis, est ignitum per participationem, ita illud quod habet esse et non est esse, est ens per participationem. Deus autem est sua essentia, ut ostensum est. Si igitur non sit suum esse, erit ens per participationem, et non per essentiam. Non ergo erit primum ens, quod absurdum est dicere. Est igitur Deus suum esse, et non solum sua essentia.
