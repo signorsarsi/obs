@@ -1,0 +1,1 @@
+In [[Calogero]] L'essere come esistente e la copula "è" nei giudizi.
