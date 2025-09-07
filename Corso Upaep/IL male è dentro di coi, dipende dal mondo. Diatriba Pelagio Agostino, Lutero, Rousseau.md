@@ -1,0 +1,10 @@
+Caelestius [[Caelestius' tesis]] semplifica il problema del male. Ora se Caelestius ha ragione, Lutero ha torto. vedi [[Lutero Pelagius]]
+
+Perchè facciamo il male?Dal nostro punto di vista possiamo dire che facciamo il male:
+
+b) Cognitivamente vediamo il mondo intorno a noi confuso, con un alone sfocato. Sappiamo bene solo che ci è vicino, anzi vicinissimo. il resto non lo capiamo. E' un problema di contesto. Alcuni oer non essere confusi restringono i contesto alla punta di uno spillo. Si legano strettamente  a pochissimi  concetti vicino a loro. Vivono in una nicchia morale, piccola, scabra, mal illuminata, dove pero ci sono quei due o tre strumenti con cui credono si possa spiegare tutto. Sono coloro che hanno le psiegazioni semplici di tutto, perchè non è difficile capire il mondo: basta lasciae solo un piccolo pertugio aperto dove entri pochissimo. Sono in tutte le classi sociali. Aristocratici che misuran tutto sull'appartenenza, Ricchi sulla loro forza, potenti sulla loro centralità. Borghesi sulla famiglia, Intellettuali sul loro teatrino interiore. Molti vedono un unico ombra aggirasi tra le quattro mura della nicchia ed è la loro. Solitari e unici tratatno gli altri come carta spiegazzata.
+
+Naturalmente chiusi in questa officina artigianala e malsana divengono i più feroci se qualcuno cerca di farli capire che il mondo è complesso. Ma in questa complessità si trovano dispersi, e allora aumentano il grido e la violenza e l'errore . 
+Nella caverna grondante sangue umano, habbo tutto chiaro: fuori nulla. 
+
+Allora per usciire da questa nicchia, che è quella del paralitico che da 16 anni era nel lettuccio, non bsta la buona volontà, perchè non è un problema di volere, ma di vedere e di sentire. Vedere ocn la mente e sentire che la cella non è buona. Sappiamo che facciamo il male ma non sappiamo come non farlo.  Spesso neanche avvertiamo il male che facciaomo. Però siamo male.
