@@ -1,0 +1,3 @@
+(…) La parola del Signore era rara in quei giorni, le visioni non erano frequenti” (_1Sam_ 3,1).
+
+Nel mondo attuale si dice che forte è il silenzio di Dio, che Dio non ci parla più. La verità è che per il solipsismo moderno, noi non solo non ascoltiamo Dio, ma non vogliamo ascoltare nessuno, vogliamo essere amati, ascoltati, apprezzati, teneramente carezzati, ma non vogliamo ascoltare. Il silenzio di Dio è il silenzio a cui costringiamo tutti perché in un mondo ideale vorremmo che l’unica voce fosse la nostra. RC
