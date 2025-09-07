@@ -1,0 +1,2 @@
+1970-80 UN: Second Developmental Decade but Opec Crisis
+STRUCTURALISM - BASIC  - WOMEN GENDER DEVELOPMENT
