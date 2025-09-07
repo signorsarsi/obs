@@ -1,0 +1,3 @@
+Quamquam si philosophandi libido est, Socraten, sapientiae principem, quisque vestrum tantus est, si potuerit, imitetur. Eius viri, quotiens de caelestibus rogabatur, nota responsio est: 'quod supra nos, nihil ad nos.' Merito ergo de oraculo testimonium meruit prudentiae singularis. Quod oraculum, idem ipse persensit, idcirco universis esse praepositum, non quod omnia comperisset, sed quod nihil se scire didicisset: ita confessae inperitiae summa prudentia est.
+XIII cap. dell'[[Octavius]] di [[Minucius Felix]].
+In questo punto si osserva veramente la differenza del pensiero cristiano. Proprio perch per  la sapienza Greca era impossibile conoscere  "quod supra nos", questo ora per la rivelazione del cielo diviene comprensibile.
