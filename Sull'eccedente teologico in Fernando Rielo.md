@@ -1,0 +1,3 @@
+Rielo afferma che la binitá é necessaria razionalmente, mente che la Trinitá eccede la necessitá logica.
+Lettieri in [(1/5) - Gaetano Lettieri - "La ricerca teologica di Origene e l’epektasis di Gregorio di Nissa" (youtube.com)](https://www.youtube.com/watch?v=jSq4mqmOqXM&t=3526s), afferma diverse proposizioni sul tema (1h05m):
+che Cusano Bruno (infinitá innumerevoli), Cusano (tre é il numero perfetto), Agostino (lo Spirito come Nexum).
