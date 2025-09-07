@@ -1,0 +1,1 @@
+[(74) Teologia de la liberacion (Gustavo Gutiérrez) - YouTube](https://www.youtube.com/watch?v=3iw1bV3rixw)
