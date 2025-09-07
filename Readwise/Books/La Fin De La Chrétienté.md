@@ -1,0 +1,278 @@
+# La Fin De La Chrétienté
+
+![rw-book-cover](https://m.media-amazon.com/images/I/81LkJavsi-L._SY160.jpg)
+
+## Metadata
+- Author: [[Chantal Delsol]]
+- Full Title: La Fin De La Chrétienté
+- Category: #books
+
+## Highlights
+- Lorsqu’au concile Vatican II, dans les années soixante du XXe siècle, l’Église finit par reconnaître la liberté religieuse, « révolution copernicienne » (J. Isensee) qui avait été préparée par l’encyclique de Jean XXIII, Pacem in Terris, en 1963, ce fut au cours de débats internes houleux5. Et en ([Location 57](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=57))
+- est bien difficile de comprendre ce changement de cap manifeste, qui entérine la fin du holisme catholique et une entrée timide dans la société moderne de l’individualisme ([Location 64](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=64))
+- commence après la Seconde Guerre, considère définitivement l’Église comme une institution obsolète, parce qu’elle repose sur une vérité et use d’autorité pour la maintenir. Pendant la seconde moitié du XXe siècle et le début du XXIe, les divergences vont s’accumuler. Le libéralisme/libertarisme régnant représente l’inverse exact de la façon de penser ecclésiale. ([Location 68](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=68))
+- Antoine Compagnon a montré à quel point, pendant les deux siècles qui nous ont précédés, la littérature antimoderne a surabondé7. ([Location 77](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=77))
+- l’histoire concrète d’une agonie, ou si l’on veut, d’un combat à mort, perdu d’avance. ([Location 90](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=90))
+- Le destin du christianisme l’incline irrémédiablement à haïr la modernité qui récuse ses principes premiers : la vérité, la hiérarchie, l’autorité et la contrainte. ([Location 95](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=95))
+- la défaite est certaine… la lutte est l’accomplissement d’un devoir9 ([Location 105](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=105))
+- Un peu plus tard, nous trouvons une proche conception des choses chez le chef de file des catholiques sociaux français, René de la Tour du Pin11. Celui-ci, comme Donoso, s’engage activement dans la société de son temps. Son but affiché est de mener un combat sur tous les fronts – intellectuel, social, politique – pour travailler à la restauration de cette société aujourd’hui perdue, la monarchie chrétienne dans laquelle « l’Évangile gouvernait les États ». ([Location 111](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=111))
+- Massis publie, en 1927, un ouvrage intitulé Défense de l’Occident. Il y prédit l’évolution qui sera confirmée à la fin du siècle : l’attrait pour les sagesses asiatiques, et partant, tout ce que signifie cet attrait en termes de civilisation – renoncement à l’idée de personne, abandon des vérités et de l’idée même de vérité. Comme beaucoup d’autres, Massis confond la chute éventuelle/prochaine de l’Occident chrétien avec la fin du monde humain – le livre commence par ces mots : « Le destin de la civilisation d’Occident, le destin de l’homme tout court, sont aujourd’hui menacés16. » ([Location 131](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=131))
+- Henri Massis, qui a écrit un ouvrage sur les trois fascismes-corporatismes de Mussolini, Salazar et Franco, décrit le fascisme comme une « révolution de l’ordre » capable d’arrêter la barbarie moderne. Le fascisme est constitué, déployé, pour sauver « les valeurs essentielles de la tradition occidentale18 ([Location 153](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=153))
+## New highlights added April 15, 2023 at 5:15 PM
+- Toute société repose sur un modèle général qui englobe les mœurs, les lois, les habitudes, la morale ordinaire, et tout cela cohérent, formant un ensemble – une architecture des mœurs, que Montesquieu appelait l’esprit général d’une nation1. ([Location 404](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=404))
+    - Tags: [[orange]] 
+- Quoi qu’il en soit, le IVe siècle fut une rupture de paradigme, à la fois au sens philosophique et au sens éthique. L’univers des chrétiens était l’envers de celui des Romains : ils introduisaient un dualisme entre temporel et spirituel, l’ici-bas et l’au-delà, les hommes et Dieu, alors que le monde religieux antique était profondément unifié. Les Romains durent avoir l’impression d’entrer dans un monde intellectuel et spirituel déchiré. ([Location 459](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=459))
+- L’égyptologue Jan Assmann décrit la première révolution monothéiste, celle d’Akhenaton à Amarna, comme la prémisse de l’inversion mosaïque. ([Location 818](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=818))
+    - Tags: [[orange]] 
+- Car une thèse majeure dans l’histoire des religions est celle-ci : alors que les cosmothéismes ou polythéismes sont naturels et évidents, les monothéismes ou religions secondaires ne sont pas naturels. Ils font appel aux notions de révélation, de foi, de sagesse intérieure et, à ce titre, ils sont des constructions et exigent toujours d’être réaffirmés, entretenus par des efforts constants. Tandis que la religion primaire surgit pour ainsi dire toute seule, prolifère sans engrais, et occupe ou réoccupe instantanément la place dès qu’elle est libre. C’est bien ce qui nous arrive aujourd’hui. ([Location 837](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=837))
+    - Tags: [[orange]] 
+- Max Weber avait décrit comment le monothéisme a détrôné le polythéisme au nom de la raison universelle. ([Location 846](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=846))
+    - Tags: [[blue]] 
+- « la multitude des dieux antiques sortent de leurs tombes, sous la forme de puissances impersonnelles parce que désenchantées, et ils s’efforcent à nouveau de faire retomber notre vie en leur pouvoir tout en reprenant leurs luttes éternelles8 ». ([Location 847](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=847))
+- Ce que nous appelons en Occident la Renaissance est un moment pendant lequel les élites chrétiennes, saisies par le doute, commencent à retourner aux philosophies d’Épicure et de Lucrèce pour combler le vide. ([Location 854](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=854))
+- Aujourd’hui, rien n’est plus proche de la pensée postmoderne que la pensée d’Épicure. ([Location 855](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=855))
+- Les chrétiens ont longtemps cru, et beaucoup d’entre eux le croient encore, qu’ils ne pourraient être remplacés que par l’athéisme, le nihilisme ou les deux à la fois. ([Location 856](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=856))
+    - Note: Molto interessante
+- Croire ou faire croire que si le christianisme s’effondre, tout s’effondre avec lui : c’est une ânerie. Certains courants catholiques radicaux font usage de ce type d’argument, qui ne peut que les affaiblir encore. ([Location 865](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=865))
+- Derrière la chrétienté effondrée ne vient pas le règne du crime, le nihilisme, le matérialisme extrême : mais plutôt des morales stoïciennes, le paganisme, des spiritualités de type asiatique. ([Location 868](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=868))
+    - Tags: [[orange]] 
+    - Note: La visioen della Delsol, sebbene interessante non tiene conto della differenza sociale
+      Mi sembra che Possiamo individuare:
+      a) un elite intellettuale che si divide in-> nihilista, liberale e postumanista
+      b) una massa neopagana
+      c) un resto cristiano
+- Heine écrit « le panthéisme est la religion cachée de l’Allemagne ». ([Location 888](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=888))
+    - Tags: [[orange]] 
+- Certes, la désaffection du catholicisme, après presque deux millénaires de règne, provoque une vacance insupportable qui cherche à être comblée par de nouvelles croyances – c’est humain. Mais plus encore : les offres religieuses asiatiques correspondent aux aspirations contemporaines. Elles ne sont pas attachées à la notion de vérité, d’où leur syncrétisme qui apparaît faussement aux Occidentaux comme de la tolérance. Elles attachent une valeur essentielle à la nature et à tous les vivants, ce qui est une condition d’adhésion pour l’écologie incontournable. ([Location 903](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=903))
+    - Tags: [[orange]] 
+- Elles ne brandissent aucun dieu, aucun dogme, aucune obligation. Le fidèle entre là pour prendre ce qu’il veut et laisser le reste. L’effort pour éliminer la souffrance ressemble bien à des séances de développement personnel, et c’est bien cela que nos contemporains viennent chercher dans les religions plébiscitées après la fin de la Chrétienté. ([Location 907](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=907))
+    - Tags: [[orange]] 
+- Tocqueville écrit ce texte terrible : Un pareil système [le panthéisme], quoiqu’il détruise l’individualité humaine ou plutôt parce qu’il la détruit, aura des charmes secrets pour les hommes qui vivent dans la démocratie14. ([Location 918](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=918))
+    - Tags: [[pink]] 
+- Nietzsche avait pressenti la même évolution quand il écrivait : « Chine européenne, avec une douce croyance bouddhiste-chrétienne, et dans la pratique, un savoir-vivre épicurien16. » L’attrait pour les religions panthéistes ou cosmothéistes se déploie dès le moindre recul de la religion monothéiste. Nous savons que la nature a horreur du vide. ([Location 927](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=927))
+    - Tags: [[pink]] 
+- Et il décrit l’histoire comme un combat entre l’esprit – la rationalité –, et l’âme, le principe vital. On aura compris que Klages regrette la part trop importante prise par l’esprit, par la raison, dans la civilisation chrétienne, et aspire à donner davantage de place à l’âme, entendue dans ce sens. Toute l’œuvre de Klages est un hommage à la vie naturelle, un éloge de la passivité contre l’activité, de l’être féminin contre l’être masculin, du dedans contre le dehors, de la nature contre la culture, de la réalité contre l’aspiration à l’éternité. Il oppose, par exemple, le rythme des choses naturelles (les saisons, les cycles biologiques…) et la mesure dictée par l’esprit humain. Le rythme est naturel, et la mesure, construite. Le rythme renouvelle, la mesure reproduit. On le voit ici : la terre elle-même a une âme, ce sont ses rythmes battant au cœur toujours neuf de la nature. ([Location 942](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=942))
+    - Tags: [[orange]] 
+- Nos contemporains occidentaux ne croient plus à un au-delà ni à une transcendance. Et s’ils imaginent un autre monde où vivre un jour, ce sont les planètes lointaines où l’on accéderait en fusée supersonique. La signification de la vie doit donc se trouver dans cette vie elle-même, et non au-dessus d’elle, où il n’y a rien. Le sacré se trouve ici : dans les paysages, dans la vie de la terre et chez les humains eux-mêmes. ([Location 959](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=959))
+    - Tags: [[blue]] 
+- Pour le monothéiste, ce monde n’est qu’un séjour. Pour le cosmothéiste, il est une demeure. L’esprit postmoderne est fatigué de vivre dans un séjour ! ([Location 974](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=974))
+- La nouvelle religion écologique est une forme de panthéisme postmoderne. ([Location 1016](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1016))
+    - Tags: [[blue]] 
+- La terre-mère devient une sorte de déesse païenne, et pas seulement chez les indigénistes boliviens, chez les Européens aussi. ([Location 1017](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1017))
+- À ce point que le pape François parle aujourd’hui de « notre mère la terre », dans un sens chrétien bien entendu, mais en laissant ouverte l’équivoque qui permet le lien avec les croyances contemporaines. ([Location 1018](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1018))
+    - Tags: [[orange]] 
+- Les chrétiens d’aujourd’hui, affolés devant la chute de leur influence, ont tendance à prétendre que toute morale va disparaître avec l’effacement du monothéisme. C’est méconnaître l’histoire. Les morales et les religions ne naissent pas de pair, et ce ne sont pas les religions qui engendrent les morales, jusqu’au judéo-christianisme. ([Location 1023](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1023))
+    - Note: Effettvamente. Non muore l amorale , ma viene sostituita da un'altra
+- Les Occidentaux d’aujourd’hui qui rejoignent des spiritualités ou des religions orientales comme le bouddhisme, n’adoptent pas leurs morales mais seulement leur spiritualité (qu’ils identifient souvent au développement personnel). ([Location 1042](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1042))
+    - Tags: [[orange]] 
+## New highlights added September 24, 2023 at 9:23 AM
+- Car quelles que soient les péripéties, l’essentiel est ceci : l’évolution se fait presque toujours dans le sens d’une liberté individuelle de plus en plus grande. ([Location 575](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=575))
+    - Tags: [[pink]] 
+- Comment expliquer la récusation presque soudaine de la pédophilie et de l’inceste et les portes ouvertes sans limites à l’IVG, la PMA… ? L’humanitarisme, morale contemporaine, est une morale entièrement tournée vers le bien-être de l’individu, sans aucune vision anthropologique. ([Location 581](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=581))
+    - Tags: [[pink]] 
+- Ainsi s’explique prioritairement l’inversion normative que nous vivons aujourd’hui – comme l’avait écrit J.-F. Lyotard : « L’homme postmoderne n’y croit plus18. » Il ne croit plus aux « grands récits », qu’il s’agisse du christianisme ou du marxisme ou de tout autre récit. Ainsi détaché (certains diront : libéré) de toutes croyances, il n’a plus aucune raison de contraindre sa liberté individuelle ni son désir individuel. Les nouvelles mœurs des « lois sociétales » ne proviennent pas d’une licence, d’une anarchie, ni même strictement de l’individualisme : mais du fait que « l’homme postmoderne n’y croit plus ». ([Location 614](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=614))
+    - Tags: [[pink]] 
+- Le cas des supérieurs hiérarchiques de l’Église, accusés d’avoir couvert les crimes de pédophilie, est particulièrement significatif : c’était l’usage de toujours couvrir ce genre de choses ! On les accuse donc de n’avoir pas senti à temps l’arrivée triomphante de la nouvelle morale en vigueur. ([Location 660](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=660))
+    - Tags: [[pink]] 
+- « nous aurions dû, en ce temps-là, ratifier la morale d’aujourd’hui ». Que signifie cela ? Depuis quand ne peut-on pas admettre les évolutions morales, depuis quand faut-il juger les ancêtres à l’aune de nos critères ? ([Location 663](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=663))
+    - Tags: [[pink]] 
+- Autrement dit, et c’est assez compréhensible, pour rayer de la carte l’ancienne morale il faut passer par d’autres docteurs de morale, ([Location 676](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=676))
+    - Tags: [[pink]] 
+- Le « progrès » consiste simplement, à chaque époque, à réconcilier les réalités (les lois, les coutumes, les mœurs), avec les croyances diffuses et parfois encore inexprimées, qui évoluent dans le silence. ([Location 691](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=691))
+    - Tags: [[orange]] 
+- L’inversion des mœurs dessine des sociétés différentes, et le passé, même récent, est devenu un pays étranger. ([Location 709](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=709))
+    - Tags: [[pink]] 
+- Il y a eu l’âge chrétien. Il y a l’âge moderne21. » ([Location 712](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=712))
+    - Tags: [[pink]] 
+- On l’aura compris, une inversion normative, surtout de cette ampleur, repose sur le socle d’une inversion philosophique. Il vaudrait mieux dire une inversion ontologique, au sens classique de la science des premiers principes1. ([Location 783](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=783))
+    - Tags: [[pink]] 
+- Chaque culture ou civilisation pose, à un moment originaire et décisif de son histoire, des choix ontologiques primordiaux sur lesquels tout le reste se construit et s’adosse – la morale et les mœurs, les lois et les usages. ([Location 787](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=787))
+    - Tags: [[pink]] 
+- Pour la Chrétienté, ce moment décisif a été l’époque des premiers conciles, qui établirent les contours des vérités premières sur lesquelles allaient vivre seize siècles de civilisation chrétienne : Dieu, la personne, la morale. ([Location 789](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=789))
+- Pendant les premiers siècles de notre ère, l’empire chinois naissait autour de l’idée selon laquelle « le pouvoir impérial est naturel, conforme aux lois de l’univers3 ». ([Location 796](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=796))
+    - Tags: [[pink]] 
+- Il arrive un jour où s’effondre la foi dans les premiers principes. En ce qui nous concerne, nous vivons aujourd’hui un point de rupture où les choix ontologiques primordiaux – concernant la signification et la place de l’homme dans l’univers, la nature du monde ou des dieux –, sont renversés. ([Location 801](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=801))
+    - Tags: [[pink]] 
+- « Moïse, pour s’assurer la fidélité de cette nation, lui donna des rites nouveaux et opposés à ceux des autres mortels. Là est profane tout ce qui nous est sacré et, par contre, permis tout ce que nous tenons pour abominable4. » ([Location 812](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=812))
+    - Tags: [[orange]] 
+- La révolution mosaïque (et aussi celle d’Akhenaton) a ceci de spécifique et de définitif : elle distingue Dieu du monde. Ou, si l’on préfère, elle établit un monde séparé d’un Dieu désormais unique. ([Location 824](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=824))
+    - Tags: [[pink]] 
+- Dieu. Non : si le rationalisme des Lumières est dangereux, c’est qu’il récuse en même temps la foi religieuse et les traditions et préjugés anciens sur lesquels une société se fonde. Bien des peuples n’ont pas besoin de Dieu pour vivre, prospérer et bien faire. Leurs mœurs, leur éthique s’adossent à des coutumes, à des traditions, même à des préjugés qui portent leurs convictions morales. Le rationalisme des Lumières efface tout simultanément, les traditions et la foi. ([Location 882](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=882))
+    - Tags: [[pink]] 
+- la raison sèche, ([Location 890](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=890))
+- Nos religions ne prennent ni ne prendront racine dans l’Inde ; ([Location 892](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=892))
+    - Tags: [[orange]] 
+- À cet égard, les deux prophètes principaux de notre temps sont Tocqueville et Nietzsche, mais les prophéties sont innombrables. ([Location 911](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=911))
+    - Tags: [[pink]] 
+- Dans un très bref chapitre de La démocratie en Amérique, Tocqueville constate le succès du panthéisme en Occident à son époque, et affirme qu’il ne s’agit pas là d’une mode passagère, mais ([Location 913](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=913))
+    - Tags: [[pink]] 
+- C’est pourquoi Ludwig Klages, peut-être le meilleur analyste et inspirateur du vitalisme, fut injustement marginalisé comme inspirateur du nazisme. Philosophe de la nature, disparu au milieu du XXe siècle, il est probablement l’un des principaux pères de l’écologie contemporaine, avec Ivan Illich qui d’ailleurs fut un de ses admirateurs. Klages restitue à l’âme son sens antique : celle-ci traduit chez lui non plus une instance immortelle, comme chez les chrétiens, mais un principe vital, comme chez les anciens Romains. ([Location 938](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=938))
+    - Tags: [[pink]] 
+- Sous le cosmothéisme, l’homme se sent chez lui dans le monde, qui représente la seule réalité et qui contient à la fois le sacré et le profane. Sous le monothéisme, l’homme se sent étranger dans ce monde immanent et aspire à l’autre monde – c’est bien par exemple ce que Nietzsche reprochait aux chrétiens. ([Location 972](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=972))
+    - Tags: [[pink]] 
+- Ainsi, le cosmothéisme s’inscrirait au terme actuel de ce processus historique : il y aurait eu le règne de Dieu, puis le règne de l’homme, enfin le règne de la nature. ([Location 989](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=989))
+    - Tags: [[pink]] 
+- : ici encore, la finalité négative est mise en avant, le but est de se débarrasser de l’hubris occidentale, et pour cela il faut se défaire de la supériorité de l’homme. ([Location 994](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=994))
+    - Tags: [[pink]] 
+- Mais surtout, et c’est là le signe patent d’une croyance vigoureuse et certainement pas d’une science rationnelle : la passion pour la nature fait accepter tout ce qui était récusé par l’individualisme tout-puissant – la responsabilité personnelle, la dette imposée envers les descendants, les devoirs envers la communauté. ([Location 1003](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1003))
+    - Tags: [[pink]] 
+- Il y a plus grave : les modernes se rendent compte que leur monde est assis sur des principes dont ils ont en quelque sorte l’usage inconscient, dont ils ont l’usage sans plus en avoir la connaissance, la maîtrise, la conviction. ([Location 1127](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1127))
+    - Tags: [[pink]] 
+- Nous vivons dans un monde fondé sur des restes, des scories dont nous avons perdu la légitimité. ([Location 1129](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1129))
+    - Tags: [[blue]] 
+- C’est ce que les Allemands appellent le « paradoxe » de Böckenförde. Ce professeur de Droit constitutionnel, travaillant sur les relations entre le politique et le religieux avait eu cette formule qui fit fortune : « L’État libéral sécularisé vit de présupposés qu’il n’est pas lui-même en mesure de garantir. » Quand l’État moderne naît en s’affranchissant du religieux, il ne peut le faire qu’en s’appuyant sur l’héritage religieux. Doit-on ([Location 1132](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1132))
+    - Tags: [[pink]] 
+- en conclure qu’il s’agit là d’un État parasite, voleur et hypocrite, et par là dramatiquement immoral ? Doit-on en conclure pour cela que ses jours sont chichement comptés ? Il est très difficile de répondre à ces deux questions, et le fait même de les poser donne le ton des dilemmes dans lesquels nous nous trouvons, en relation directe avec la fin de la Chrétienté. ([Location 1135](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1135))
+    - Tags: [[blue]] 
+- Ce qui s’est produit au IVe siècle de notre ère avec le succès fulgurant du christianisme, lorsque les chrétiens se sont installés dans les temples païens en les rebaptisant, ce n’était pas du parasitisme. Mais du réemploi sagace. ([Location 1156](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1156))
+    - Tags: [[blue]] 
+- Le théologien Théo Sundermeier affirmait que les religions secondaires ne peuvent se déployer qu’en s’appropriant les expériences et préceptes moraux des religions primaires, et que cette inculturation originelle se produit et laisse sa marque à chaque changement d’époque4. ([Location 1159](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1159))
+    - Tags: [[orange]] 
+- Une religion nouvelle écrit sur l’autre comme sur un palimpseste5. » L’image du palimpseste me paraît plus juste que celle du parasite. ([Location 1162](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1162))
+- En examinant les aventures récentes du concept de vérité, on comprendra mieux à quel point le « parasitisme », ou le palimpseste, comme reprise et dénaturation des principes anciens, répond à de multiples motifs ou occasions. Les modernes, et a fortiori les postmodernes, ont repris le concept de vérité tout en le transformant au point de le dénaturer. Mais les raisons de cette dénaturation venaient de l’inventeur lui-même. Voyons comment. ([Location 1175](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1175))
+    - Tags: [[orange]] 
+- La sortie de l’âge des mythes et l’entrée dans l’âge de la vérité, sont le fait des philosophes grecs et des judéo-chrétiens7. ([Location 1179](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1179))
+    - Tags: [[orange]] 
+- fausses. Car la notion de vérité ou de fausseté n’a pas grand sens chez les Anciens. Ils sont persécutés parce qu’ils nuisent à la grandeur de l’empire en ne respectant pas les dieux locaux et en se tenant au bord de la désobéissance civile. En revanche, les chrétiens instaurent après les Juifs et les Grecs la notion de vérité et quand, tout à la fin du IVe siècle, ils deviennent religion dominante et commencent à persécuter les païens, ils les persécutent pour diffusion de fausses doctrines et adoration de faux dieux. ([Location 1182](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1182))
+    - Tags: [[orange]] 
+- En ce qui concerne les questions cruciales des origines et des finalités existentielles, de l’existence des dieux et de la destination de l’homme, l’agnosticisme prévalait chez les Anciens. Les mythes proposaient un sens pour la vie, mais ils demeuraient des narrations – et la vérité demeurait cachée, s’il en existait une. ([Location 1187](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1187))
+    - Tags: [[orange]] 
+- prétentieux. Au IVe siècle, le défenseur majeur du paganisme déclinant, l’écrivain Symmaque, qui réclame de pouvoir « vivre à sa façon », écrit : « Qu’importe la doctrine par où chacun recherche la vérité. On ne saurait par un seul chemin accéder à un si grand mystère8. » ([Location 1191](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1191))
+    - Tags: [[orange]] 
+- La notion même de vérité s’est probablement perdue par ses propres excès, par la rationalisation radicale du logos, lequel finit par défigurer la réalité qu’il était fait pour dévoiler. ([Location 1196](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1196))
+- Aujourd’hui, la vérité des Droits de l’homme comme logos transcendant le temps et l’espace, est un résidu des dogmes transcendants du christianisme. ([Location 1200](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1200))
+    - Tags: [[pink]] 
+- Mais cet universalisme court à sa perte. ([Location 1201](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1201))
+- Le statut de la vérité a été fracassé par la modernité. ([Location 1202](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1202))
+    - Tags: [[blue]] 
+- Il semble bien que la cruauté de l’aporie (la vérité OU l’histoire), ait fini par avoir raison de la vérité. En réalité, l’être est événement et devenir, et non définition objective. ([Location 1202](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1202))
+    - Tags: [[orange]] 
+- Car la vérité est un rêve que nous poursuivons, tandis que l’histoire, elle, EST là, et nous ne pouvons nous en défaire. ([Location 1204](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1204))
+    - Tags: [[blue]] 
+- : il se peut bien que l’idée même de vérité ait été carrément dévoyée par la Chrétienté. Que la vérité ait été posée comme une proposition théorique, comme un dogme, si distante dès lors de la réalité qu’elle la trahit et se perd elle-même. Autrement dit, il se peut que Heidegger ait eu raison. Dans ce cas, la vérité doit cesser d’être proposition ou dogme pour devenir un halo de lumière, un espoir qui tremble, une chose insaisissable qu’on attend avec des rêves de mendiant. Le contraire de ce qu’en ont fait d’abord la religion chrétienne instituée et conquérante, puis, dans son sillage, les idéologies du XXe siècle. ([Location 1206](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1206))
+    - Tags: [[pink]] 
+- : croire la vérité historique, c’est la briser, parce que la réalité est toujours la plus forte. Michel Villey dans Le livre des pages, s’approchait de cette analyse : « Tort de [[Cartesio|Descartes]], d’exiger partout l’évidence. Faute d’accepter le clair-obscur, il nous a livrés à la nuit11. » Benjamin écrivait semblablement : « La vérité n’est pas dévoilement, qui détruit le mystère, mais révélation, qui lui rend justice12. » ([Location 1217](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1217))
+    - Tags: [[pink]] 
+- Michel Villey pensait que la quête de la connaissance n’était rien d’autre que la prémisse de la quête spirituelle : « Si la vérité n’existe point, ce sera sa faute et non la mienne. Elle a été mon dieu à moi13. » ([Location 1223](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1223))
+    - Tags: [[orange]] 
+- Autrement dit : ce qui peut nous permettre de renouer le lien entre l’histoire et la vérité, ce n’est ni la dogmatique du vrai (théories du Progrès ou des Droits de l’homme rigidifiés), ni l’oubli du vrai (mythes postmodernes), mais plutôt la clandestinité du vrai, qui fait de sa recherche une quête humble et spirituelle, jamais définitive. ([Location 1227](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1227))
+    - Tags: [[pink]] 
+- Le christianisme disait exprimer la réalité, alors que sur cette terre on ne peut que l’interpréter. Il fallait mettre un terme à cette prétention. ([Location 1230](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1230))
+    - Tags: [[blue]] 
+- « Aussi déconcertant que cela puisse paraître, on doit reconnaître dans l’affirmation doctrinale de l’Incarnation un moment radicalement inventif14. » ([Location 1239](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1239))
+    - Tags: [[pink]] 
+- Pour faire face au nihilisme, il propose de se défaire de l’aride rationalité moderne et de retourner au mythe, revêtu de toute sa sacralité. Milbank justifie ses choix par les dérives historiques : « Je n’accuse pas directement les Lumières, qui n’ont été qu’une réaction à une théologie appauvrie, qui était devenue trop dogmatique, univoque et avait perdu tout mysticisme. ([Location 1241](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1241))
+- Ce qui distingue le christianisme, ce n’est pas qu’il est vrai au sens classique, mais « il offre une meilleure histoire15 ([Location 1245](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1245))
+- On se remémore en écho Simone Weil, déjà si contemporaine, à propos des cours sur la religion qu’il faudrait faire dans les écoles : « s’ils demandent : Est-ce vrai ? il faut répondre : Cela est si beau que cela contient certainement beaucoup de vérité16. » ([Location 1246](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1246))
+    - Tags: [[blue]] 
+- Donoso Cortès : « Que la vérité est une chose qu’on ne possède pas, que l’on cherche encore […] c’est proclamer que la vérité et l’erreur ont des droits égaux […] principe faux que l’Église catholique ne peut enseigner17. » ([Location 1253](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1253))
+- Nous avions profané l’idée de vérité, à force de vouloir à tout prix identifier la foi à un savoir. ([Location 1256](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1256))
+- l’audace de se voir en dépositaires de la loi naturelle, laquelle serait inscrite dans l’infaillibilité de leurs dogmes. Ils ont aujourd’hui plutôt le sentiment qu’ils se sont longtemps approprié la compréhension de la réalité parce qu’ils étaient majoritaires et puissants, mais qu’en réalité cette compréhension ne leur appartient pas. ([Location 1260](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1260))
+- La désaffection vis-à-vis des dogmes, ou d’une vérité décrétée et certaine, ne suscite pas une forme de nihilisme, selon le verdict de quelques esprits noirs, mais plutôt le triomphe de la morale. ([Location 1271](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1271))
+- Rauschenbush ([Location 1279](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1279))
+- un Évangile abâtardi a produit le courant décolonial – il faut ajouter : après avoir en son temps produit le communisme. Les descriptions de Bottum ne laissent pas de doute à ce sujet : en affirmant une culpabilité sans pardon, les Woke ne laissent d’espoir qu’à la violence. Leur péché originel ressemble à ([Location 1289](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1289))
+    - Tags: [[pink]] 
+- Marius Grout, qui écrivait au milieu du XXe siècle, a précisément compris que les religions de la transcendance ne seraient pas remplacées par les utopies communistes, vouées au malheur et à la désillusion, mais par un souci post-évangélique de l’homme, débarrassé du culte et de la transcendance. ([Location 1297](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1297))
+    - Tags: [[orange]] 
+- Le désir était profond d’effacer radicalement toute trace des anciennes prohibitions morales érigées par le christianisme depuis des siècles. Ce moment de nihilisme a donné lieu à d’intenses bacchanales. Prenons un exemple très parlant pour nos contemporains. Dans les années soixante, nombre de personnalités se sont déchaînées pour défendre et même glorifier la pédophilie. ([Location 1304](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1304))
+    - Tags: [[pink]] 
+- Camille Kouchner La Familia Grande. ([Location 1308](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1308))
+    - Tags: [[pink]] 
+- deux adolescents de 13 ans, auxquels on a dit depuis le berceau que tout est permis à satiété, se rendent compte par eux-mêmes que l’inceste « c’est mal ». ([Location 1313](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1313))
+    - Tags: [[orange]] 
+- dogme (ce que Thomas d’Aquin a écrit). Quelque chose doit bien exister qui ressemble à une loi naturelle, et l’interdit de l’inceste en fait partie. C’est pourquoi le nihilisme demeure une farce (délétère) d’intellectuels en mal de nouveauté, une affaire germano-pratine, au fond. La nature revient au galop : et il y a un fondement naturel à la morale, quelque chose de simplement humain qui nous souffle un « tu dois » – son contenu restant évidemment toujours en débat. Ce n’est pas nous qui fondons l’obligation morale : c’est elle qui nous fonde, voilà ce que signifie l’histoire récente. ([Location 1316](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1316))
+    - Tags: [[blue]] 
+- Mais il y a plus. La liquidation morale de la seconde moitié du XXe siècle a laissé un sentiment de nausée. ([Location 1321](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1321))
+    - Tags: [[orange]] 
+- Le contenu de la nouvelle morale, une philanthropie assez pleurnicharde et très victimaire, dominée par l’émotion et le sentimentalisme, trouve ses raisons d’être dans l’évolution générale. Car la désaffection à l’égard de la vérité et l’agnosticisme ambiant, suscitent l’humanitarisme : « Quand il n’y a plus de vérité, l’idée de communauté prend la place », s’en explique G. Vattimo, rappelant que Heidegger était à la fin attiré par le bouddhisme, et que Michel Foucault défendait Khomeini pour la même raison21. ([Location 1337](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1337))
+    - Tags: [[pink]] 
+- se demander ce qui reste du christianisme si on se débarrasse de la vérité : probablement, un grand mythe et les rites symboliques qui vont avec. ([Location 1353](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1353))
+    - Tags: [[blue]] 
+    - Note: Proprio cosi
+- leçons. Une nouvelle morale laisse-t-elle davantage place à la liberté individuelle ? Pas du tout. Elle s’impose avec autant de violence et de ricanements que celle précédente. ([Location 1360](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1360))
+    - Tags: [[orange]] 
+- Sans aucun doute, cette morale néo-évangélique, que l’on peut appeler un humanitarisme, appartient à ces produits parasites dont parlait Péguy. ([Location 1366](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1366))
+- Chesterton disait que ces principes empruntés par défaut à la Chrétienté « se fanent très vite entre les mains des modernes », parce qu’il y a loin du bassin à la fontaine23. ([Location 1372](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1372))
+    - Tags: [[orange]] 
+- On peut penser que ces principes parasites ou palimpsestes, puisque séparés de leurs fondements justificatifs, vont devenir en quelque sorte des coutumes, qu’on suit sans plus se rappeler leur origine. ([Location 1374](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1374))
+    - Tags: [[orange]] 
+- étant devenu adulte et capable de comprendre et de maîtriser le monde, il n’a plus besoin de l’hypothèse Dieu qui convenait à des esprits faibles et ignares. ([Location 1389](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1389))
+    - Tags: [[orange]] 
+- Dans La sagesse dans le sang (Wise Blood), ([Location 1397](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1397))
+    - Tags: [[pink]] 
+- » O’Connor, qui écrit au milieu du XXe siècle, décrit déjà la modernité tardive. ([Location 1404](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1404))
+    - Tags: [[orange]] 
+- : aujourd’hui, l’Église a honte de la Chrétienté comme pouvoir et comme contrainte, et elle aspire à d’autres formes d’existence. ([Location 1495](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1495))
+    - Tags: [[pink]] 
+- personnel de l’Église, désarmé sur tous les plans, cesse de revendiquer le pouvoir perdu et même se repent d’en avoir usé et abusé. Mais encore, il va jusqu’à rallier les courants de pensée qui le mettent en cause. Pourquoi cette incohérence, qui peut ressembler à du masochisme ? Ce n’est pas la première fois dans l’histoire, et de loin. Il s’agit toujours, devant un adversaire patenté et puissant, de lui plaire afin de ne pas perdre trop de terrain. À ([Location 1498](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1498))
+## New highlights added August 20, 2024 at 1:13 PM
+- Nous n’avons pas encore pris en compte la transformation majeure qui se produit à notre époque : la fin d’une civilisation vieille de seize siècles. ([Location 10](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=10))
+    - Tags: [[pink]] 
+- ». Car la mort de la Chrétienté n’est pas, loin de là, une mort subite. ([Location 11](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=11))
+    - Tags: [[pink]] 
+- Sous cet aspect on peut dire que la Chrétienté a duré seize siècles, depuis la bataille de la rivière froide (le Frigidus), en 394, jusqu’à la seconde moitié du XXe siècle, avec le succès des adeptes de l’IVG. ([Location 17](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=17))
+- Tandis que la Révolution française déboucha sur une guerre perpétuelle entre l’Église et l’État, avec toutes ses conséquences : entièrement privé du spirituel, le politique tombe inévitablement dans des excès sinistres. ([Location 39](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=39))
+    - Tags: [[orange]] 
+- Les premières révolutions modernes fondées sur la liberté, furent des acquis protestants. ([Location 42](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=42))
+    - Tags: [[orange]] 
+- La Révolution française ne put pas, au contraire des trois autres, s’adosser à une religion qui, cette fois, était catholique, apostolique et romaine. Les valeurs qu’elle mettait en avant s’opposaient frontalement à celle du Magistère romain, faisant pour plus d’un siècle de l’Église ([Location 45](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=45))
+    - Tags: [[pink]] 
+- catholique la principale centrale antilibérale du monde occidental3. ([Location 47](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=47))
+    - Tags: [[orange]] 
+- : « Les siècles modernes sont une croisade contre le christianisme », disait José Ortega y Gasset4. ([Location 52](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=52))
+    - Tags: [[pink]] 
+- fausses. Car la notion de vérité ou de fausseté n’a pas grand sens chez les Anciens. Ils sont persécutés parce qu’ils nuisent à la grandeur de l’empire en ne respectant pas les dieux locaux et en se tenant au bord de la désobéissance civile. En revanche, les chrétiens instaurent après les Juifs et les Grecs la notion de vérité et quand, tout à la fin du IVe siècle, ils deviennent religion dominante et commencent à… ([Location 1182](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1182))
+    - Tags: [[orange]] 
+- En ce qui concerne les questions cruciales des origines et des finalités existentielles, de l’existence des dieux et de la destination de l’homme, l’agnosticisme prévalait chez les Anciens. Les mythes proposaient un sens pour la vie, mais ils demeuraient des… ([Location 1187](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1187))
+    - Tags: [[orange]] 
+- prétentieux. Au IVe siècle, le défenseur majeur du paganisme déclinant, l’écrivain Symmaque, qui réclame de pouvoir « vivre à sa façon », écrit : « Qu’importe la doctrine par où chacun recherche la vérité. On ne… ([Location 1191](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1191))
+    - Tags: [[orange]] 
+- La notion même de vérité s’est probablement perdue par ses propres excès, par la rationalisation radicale du logos, lequel finit par défigurer la… ([Location 1196](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1196))
+- Aujourd’hui, la vérité des Droits de l’homme comme logos transcendant le temps et l’espace, est un résidu des dogmes… ([Location 1200](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1200))
+    - Tags: [[pink]] 
+- Mais cet universalisme court à… ([Location 1201](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1201))
+- Le statut de la vérité a été fracassé par… ([Location 1202](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1202))
+    - Tags: [[blue]] 
+- Il semble bien que la cruauté de l’aporie (la vérité OU l’histoire), ait fini par avoir raison de la vérité. En réalité, l’être est événement et… ([Location 1202](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1202))
+    - Tags: [[orange]] 
+- Car la vérité est un rêve que nous poursuivons, tandis que l’histoire, elle, EST là, et nous ne… ([Location 1204](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1204))
+    - Tags: [[blue]] 
+- : il se peut bien que l’idée même de vérité ait été carrément dévoyée par la Chrétienté. Que la vérité ait été posée comme une proposition théorique, comme un dogme, si distante dès lors de la réalité qu’elle la trahit et se perd elle-même. Autrement dit, il se peut que Heidegger ait eu raison. Dans ce cas, la vérité doit cesser d’être proposition ou dogme pour devenir un halo de lumière, un espoir qui tremble, une chose insaisissable qu’on attend avec des rêves de mendiant. Le contraire de ce… ([Location 1206](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1206))
+    - Tags: [[pink]] 
+- En effet, il n’y a plus de clercs ni de gardiens du temple – au sens propre. On se souvient que dans les sociétés païennes, la religion et la morale sont séparées : la religion réclame des sacrifices et des rites, tandis que les gouvernants imposent une morale. ([Location 1381](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1381))
+    - Tags: [[pink]] 
+- Elle habite toute la cinématographie de ce temps. Elle gouverne dans les écoles et dans les préaux, dans les familles. Quand il faut la redresser ou lui assigner une bonne direction, c’est l’élite gouvernante qui s’en charge. Les gouvernants européens représentent à cet égard le tabernacle de la cléricature. Bref, nous sommes revenus à une situation typique de paganisme : nous avons une morale d’État. ([Location 1385](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1385))
+    - Tags: [[orange]] 
+- Que devient, que va devenir l’Église sans la Chrétienté ? ([Location 1469](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1469))
+    - Tags: [[pink]] 
+- En réalité, le personnel de l’Église a été atteint par la maladie de l’époque : la mauvaise conscience, la honte du passé. ([Location 1473](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1473))
+    - Tags: [[pink]] 
+- Mais il y a plus : parce que la période présente prétend revoir tout le passé et le renier à l’aune de ses principes d’aujourd’hui, le personnel de l’Église a tendance à lui emboîter le pas et même à se faire plus royaliste que le roi. ([Location 1478](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1478))
+    - Tags: [[pink]] 
+- « un crime de masse », affirme carrément le président de la Commission sur les abus de l’Église en mars 2021. ([Location 1481](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1481))
+    - Tags: [[orange]] 
+- L’Église a honte du pouvoir qu’elle a exercé pendant des siècles sur les sociétés. ([Location 1489](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1489))
+- Elle a tendance à se réfugier dans un trou de souris afin de dissimuler pour toujours le pouvoir qu’elle a affiché si longtemps. ([Location 1490](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1490))
+- Ce type de comportement, qui consiste à s’abîmer dans la dévotion de son adversaire naturel, trouve bien des antécédents dans l’histoire. C’est l’attitude du puissant qui, ayant perdu son hégémonie et avec elle son aura, vise à en conserver une parcelle en ressemblant à ceux qui sont en train de la lui enlever. Au IVe siècle de notre ère, les païens, affolés de se voir retirer la prééminence, tentèrent de ressembler aux chrétiens. Ils savaient bien, naturellement, qu’on préférera toujours l’original à la copie. ([Location 1505](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1505))
+    - Tags: [[orange]] 
+- Autrement dit, ces discours en appellent à dissoudre le catholicisme dans l’hypothèse Gaïa de Lovelock, comme certains espéraient, dans les années soixante, dissoudre le catholicisme dans le marxisme. ([Location 1528](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1528))
+- Une partie de l’Église, on l’a vu dans les pages précédentes, glisse vers le panthéisme. L’ardeur des partisans de Gaïa à convertir nos théologiens, peut traduire la volonté jubilatoire d’anéantir un adversaire agonisant. ([Location 1532](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1532))
+- Convertissez les peuples au christianisme, à la dignité intrinsèque de chaque embryon, et ensuite vous pourrez abolir l’IVG. Vouloir le faire en sens inverse, ce serait comme vouloir imposer la confession à des peuples non catholiques : une ânerie terroriste. ([Location 1557](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1557))
+    - Tags: [[orange]] 
+- Éduquer des enfants à la foi aujourd’hui, c’est produire des soldats pour Waterloo. ([Location 1568](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1568))
+    - Tags: [[orange]] 
+- Comme le père T.-D. Humbrecht, la plupart d’entre nous voient les chrétiens de l’avenir proche comme un maigre troupeau sans autre ambition que celle d’être silencieusement le sel de la terre, « émaciés, certes, ils sont appelés à renouveler leur manière de prendre leur place dans la société, non plus peut-être de manière dominante, mais de façon essentielle7 ([Location 1584](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1584))
+    - Tags: [[orange]] 
+- Quand on ne peut pas être une puissance, on peut être un exemple, disait Camus. ([Location 1588](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1588))
+    - Tags: [[blue]] 
+- Ce qu’Émile Poulat avait résumé ainsi : « Il n’est pas sûr que Dieu ait perdu au change8. » ([Location 1596](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1596))
+    - Tags: [[orange]] 
+- Certains estiment même que la traduction archaïque et dominatrice de la mission évangélique a nui à cette religion, tel Kierkegaard affirmant (dans L’Instant) que le christianisme s’est aboli par sa propagation. ([Location 1603](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1603))
+    - Tags: [[blue]] 
+- C’est naturellement l’opinion du protestantisme, pour lequel l’institutionnalisation tue le message. ([Location 1604](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1604))
+- On le voit, il ne manque pas de grande voix pour mettre en cause le pouvoir ecclésial, fut-il un pouvoir sur les âmes, celui qui a été le quotidien de l’Occident pendant des siècles et encore aujourd’hui dans certains pays. Mais celui qui va le plus loin est sans doute Ivan Illich12. ([Location 1616](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1616))
+- La modernité, en effet, est probablement à la fois un rejet du pouvoir chrétien (récusation des lois sociétales), et une reprise et adaptation des principes chrétiens (égalité sociale, philosophie du Care). Dans toutes ses dimensions, elle s’établit contre la Chrétienté comme civilisation, et non contre le christianisme. ([Location 1627](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1627))
+- C’était bien moins comme doctrine religieuse que comme institution politique que le christianisme avait allumé ces furieuses haines13. » ([Location 1631](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1631))
+- C’est l’une des exigences qui s’imposent à nous désormais : le statut de minoritaire est très spécifique, et nous devons l’apprendre des juifs ou des protestants. Quand on est majoritaire, les vertus nécessaires sont la tolérance, l’humilité et la discrétion. Quand on est minoritaire, la tolérance n’est plus une vertu mais une nécessité d’état ; les vertus sont l’équanimité, la patience et la persévérance. Le minoritaire doit éviter la paranoïa. Cette situation inédite dans notre histoire, finalement nous ramène à l’âge des premiers chrétiens. ([Location 1636](https://readwise.io/to_kindle?action=open&asin=B09FWD58F6&location=1636))
+    - Tags: [[pink]] 
+    - Note: IMPORTANTISSIMOOOOOOOOOOOOOOOOO
