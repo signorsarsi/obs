@@ -1,0 +1,1 @@
+Il concetto di [[Leninismo/Concezione dialettica dello sviluppo|sviluppo]] per Lenin 
