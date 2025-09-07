@@ -1,0 +1,5 @@
+https://www.google.com/search?q=Jos%C3%A9+Carlos+Martin+De+La+Hoz&rlz=1C1YTUH_esMX1080MX1080&oq=Jos%C3%A9+Carlos+Martin+De+La+Hoz&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIICAEQABgWGB7SAQgxNTQyajBqN6gCALACAA&sourceid=chrome&ie=UTF-8&bshm=rimc/1#fpstate=ive&vld=cid:904ac8ac,vid:HqeJWiaZvM4,st:0
+
+Asesor para la Causa de los santos de la Conferencia Episcopal Española
+
+Licenciado en Ciencias Geológicas por la Universidad Complutense de Madrid y Doctor en Teología (Especialidad de Teología Histórica e Historia de la Teología) por la Universidad de Navarra. Investigador del Instituto de Historia de la Iglesia de la Universidad de Navarra. Fundador de las Academias de Historia Eclesiástica de Sevilla y Valencia, de las que ha sido Secretario General. Forma parte del Instituto para el estudio de la Escuela de Salamanca. Actualmente es el Director de la Oficina para las Causas de los Santos del Opus Dei en España y es Postulador de diversas Causa
