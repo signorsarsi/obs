@@ -1,0 +1,5 @@
+![[Pasted image 20250710115827.png]]
+I
+Scopo dell'arte medica é la buona salute: il fine ne é il possesso. A sua  volta é interesse  del medico conoscere  necessariamente per mezzo di cosa , o possa restituire la salute perduta o possa  proteggere la presente.
+Ora invero quelle cose che restituiscono la saluta assente sono nominati medicine o presidi. Quelle che conservano la salute presente, sono un regime di dieta salubre. Questa dunque, gli scritti degli antichi dichiarano, essere parimenti la medicina dei salubri e  la scienza dei malati.
+Invero chiamano le cose che danno salubritá quelle adatte, una volta per proteggere la salute presente, un'altra per recuperare quella persa. Quelle che producono malattia sono contrarie a queste. Al medico infatti é necessaria la conoscenza  di ambidue: per evitare queste e per voler avere quelle
