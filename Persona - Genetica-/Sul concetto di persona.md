@@ -1,0 +1,1 @@
+Silvana Elías, G. (2022). La [[Prosōpon and Hypostasis in Basil of Caesarea|Persona]] Humana: El Aporte De Juan Duns Escoto: HUMAN PERSON: THE CONTRIBUTION OF JOHN DUNS SCOTUS. _Carthaginensia_, _37_(73), 33–51.
