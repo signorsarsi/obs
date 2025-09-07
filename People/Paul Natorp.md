@@ -1,0 +1,1 @@
+[Paul Natorp (Stanford Encyclopedia of Philosophy)](https://plato.stanford.edu/entries/natorp/)
