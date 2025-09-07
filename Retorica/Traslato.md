@@ -1,0 +1,11 @@
+Metafora
+[[Metonimia]]
+Metalepsi
+Sineddoche
+Antonomasia
+Perifrasi
+Litote
+Ironia
+Iperbole
+Apostrofe
+Preterizione
