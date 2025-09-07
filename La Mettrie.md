@@ -1,0 +1,1 @@
+[LA METTRIE, Julien Offroy de in "Enciclopedia Italiana" (treccani.it)](https://www.treccani.it/enciclopedia/la-mettrie-julien-offroy-de_%28Enciclopedia-Italiana%29/)
