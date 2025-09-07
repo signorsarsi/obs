@@ -1,0 +1,2 @@
+Aristotele nelle categorie ci indica queti due aspetti che implicnao i due prolemi degli alias: quando gli aliasi si riferiscono alla stessa cosa si tratta di sinonimia. Al contrario ci pu essere un unico termine ce rappresenti cose diverse e allora is parla di omonimia
+Lerrore omonimico è quando usiamo nei nosro dati un unica parole che si rifersce a u niversi idiveri. Per esempio, il DOn Chishiotte pu appartenere all'universo dei libri spagnoli, ma anche apparenere a quello dei ristoranti Se esiste un ristorante con questo nome) In queesto caso si parla di omonimia. Se 
