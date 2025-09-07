@@ -1,0 +1,1 @@
+[Mereology (Stanford Encyclopedia of Philosophy)](https://plato.stanford.edu/entries/mereology/)
