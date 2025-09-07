@@ -1,0 +1,114 @@
+# The Servant as Leader
+
+![rw-book-cover](https://images-na.ssl-images-amazon.com/images/I/41txx%2BdmVxL._SL200_.jpg)
+
+## Metadata
+- Author: [[Robert Greenleaf]]
+- Full Title: The Servant as Leader
+- Category: #books
+
+## Highlights
+- SERVANT AND LEADER. Can these two roles be fused in one real person, in all levels of status or calling? ([Location 35](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=35))
+- real world ([Location 36](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=36))
+    - Note: This is important. Real word
+- but he was servant first because that was what he was, deep down inside. ([Location 47](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=47))
+    - Note: very good!
+- Leadership was bestowed upon a man who was by nature a servant. ([Location 48](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=48))
+    - Note: Great!
+- I now embrace the theory of prophecy which holds that prophetic voices of great clarity, and with a quality of insight equal to that of any age, are speaking cogently all of the time. ([Location 56](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=56))
+    - Note: Profetismo evangelico
+- It is seekers, then, who make the prophet; ([Location 62](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=62))
+    - Note: Aspetto religioso. Concetrato di profetismo e messianismo nel Nuovo Mondo.
+- Some who have difficulty with this theory assert that their faith rests on one or more of the prophets of old having given the “word” for all time and that the contemporary ones do not speak to their condition as the older ones do. But if one really believes that the “word” has been given for all time, how can one be a seeker? ([Location 66](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=66))
+    - Note: Greenleaf was a quacker. the Revelation never ends!!
+- But if one is servant, either leader or follower, one is always searching, listening, expecting that a better wheel for these times is in the making. It may emerge any day. ([Location 73](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=73))
+    - Note: This is revitalizing! Because gives us the strength to do something worth for our journey.
+- tension and conflict, ([Location 76](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=76))
+    - Note: The young movement of 1968
+- because more natural servants are trying to see clearly the world as it is and are listening carefully to prophetic voices that are speaking now ([Location 76](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=76))
+    - Note: Hoe to rebuild society.
+- pervasive injustice ([Location 77](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=77))
+    - Note: Justice: a topic in those years
+- know is reasonable and possible with available resources, and, on the other hand, the actual performance of the whole range of institutions that exist to serve society. ([Location 78](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=78))
+    - Note: Is not only a problem of management. The purpose is to do better rand more, to change american society
+- issues of power and authority, ([Location 80](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=80))
+    - Note: 1968
+- A new moral principle is emerging which holds that the only authority deserving one’s allegiance is that which is freely and knowingly granted by the led to the leader in response to, and in proportion to, the clearly evident servant stature of the leader. ([Location 81](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=81))
+    - Note: Moral Authority is gained from the servant-ship of the leader. Only if the leader is a father can be obeyed.
+- Rather, they will freely respond only to individuals who are chosen as leaders because they are proven and trusted as servants. ([Location 83](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=83))
+    - Note: Those were the days, my friend. But those days are gone.
+- I say this because so many, having made their awesome decision for autonomy and independence from tradition, and having taken their firm stand against injustice and hypocrisy, find it hard to convert themselves into affirmative builders of a better society. ([Location 88](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=88))
+    - Note: I believe he is referring to the young students in the movement in the universities in the sixties.
+- of it by retreating to an idyllic existence that minimizes involvement with the “system” (with the “system” that makes such withdrawal possible). ([Location 94](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=94))
+    - Note: Hippyes' style
+- destroy them ([Location 96](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=96))
+- The danger, perhaps, is to hear the analyst too much and the artist too little. ([Location 104](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=104))
+    - Note: Great!!
+- I believe rather that it is awakened, revived, nourished by millions of solitary individuals whose deeds and works every day negate frontiers and the crudest implications of history. ([Location 114](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=114))
+    - Note: Very Good, old Camus!
+- I did not get the notion of the servant as leader from conscious logic. ([Location 123](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=123))
+    - Note: Inspirtion and Intuition. GreenLeaf is a prophet
+- full of contradictions. ([Location 128](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=128))
+    - Tags: [[orange]] 
+- My good society will have strong individualism amidst community. It will have elitism along with populism. I listen to the old and to the young and find myself baffled and heartened by both. ([Location 128](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=128))
+    - Tags: [[orange]] 
+- The servant-leader is servant first ([Location 136](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=136))
+    - Tags: [[orange]] 
+- Then conscious choice brings one to aspire to lead. ([Location 137](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=137))
+- He is sharply different from the person who is leader first, ([Location 138](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=138))
+    - Tags: [[orange]] 
+- The best test, and difficult to administer, is: do those served grow as persons; do they, while being served, become healthier, wiser, freer, more autonomous, more likely themselves to become servants? And, ([Location 142](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=142))
+    - Tags: [[orange]] 
+    - Note: The famous test to measure the good servant leader.
+- And it is always an hypothesis under a shadow of doubt. ([Location 148](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=148))
+    - Tags: [[orange]] 
+    - Note: His ideas are not proven: they are faith grounded
+- “Faith is the choice of the nobler hypothesis. ([Location 148](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=148))
+    - Tags: [[orange]] 
+- My hope for the future rests in part on my belief that among the legions of deprived and unsophisticated people are many true servants who will lead, ([Location 154](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=154))
+    - Tags: [[orange]] 
+    - Note: The messiah
+- The forces for good and evil ([Location 157](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=157))
+    - Tags: [[orange]] 
+    - Note: High moral stake
+- The very essence of leadership, going out ahead to show the way, derives from more than usual openness to inspiration. ([Location 159](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=159))
+    - Tags: [[orange]] 
+- Why would anybody accept the leadership of another except that the other sees more clearly where it is best to go? ([Location 160](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=160))
+    - Tags: [[orange]] 
+    - Note: The leader has to see beyond..." I've been to the mountain top" (MLKing
+- many who presume to lead do not see more clearly and, in defense of their inadequacy, they all the more strongly argue that the “system” must be preserved—a fatal error in this day of candor. ([Location 161](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=161))
+    - Tags: [[orange]] 
+- As long as he is leading, he always has a goal. ([Location 170](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=170))
+    - Tags: [[orange]] 
+- By clearly stating and restating the goal the leader gives certainty and purpose to others who may have difficulty in achieving it for themselves. ([Location 172](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=172))
+    - Tags: [[orange]] 
+    - Note: The important of vision
+- Every achievement starts with a goal. But not just any goal and not just anybody stating it. ([Location 176](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=176))
+    - Tags: [[orange]] 
+- Not much happens without a dream. ([Location 180](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=180))
+    - Tags: [[orange]] 
+- And for something great to happen, there must be a great dream. Behind every great achievement is a dreamer of great dreams. Much more than a dreamer is required to bring it to reality; but the dream must be there first. ([Location 180](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=180))
+    - Tags: [[orange]] 
+    - Note: The dream is the first necessary condition, not sufficient, but necessary,
+- In three months his administrative problems were ([Location 185](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=185))
+    - Tags: [[orange]] 
+    - Note: As usual, the anecdotic approach. Not good.
+- No miracles were wrought; but out of a sustained intentness of listening that was produced by this unusual decision, this able man learned and received the insights needed to set the right course. And he strengthened his team by so doing. ([Location 186](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=186))
+    - Tags: [[orange]] 
+    - Note: The recipe approach is not good.
+- Or, he will hear enough that he will get an intuitive insight that resolves it. ([Location 192](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=192))
+    - Tags: [[orange]] 
+    - Note: Maybe, but listening to people that do not have the dream or they have not the same vision may be wasting time.
+- I have a bias about this which suggests that only a true natural servant automatically responds to any problem by listening first. ([Location 192](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=192))
+    - Tags: [[orange]] 
+    - Note: Maybe is a bias
+- “Lord, grant that I may not seek so much to be understood as to understand. ([Location 201](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=201))
+    - Tags: [[orange]] 
+    - Note: Religion is behind the scenes
+- Nothing is meaningful until it is related to the hearer’s own experience. ([Location 206](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=206))
+    - Tags: [[orange]] 
+    - Note: This is the sad common experience, but in speech not in written language (excluding Hegel's Phenomenology of Mind !)
+- The only feasible way of dealing with this is to push a particular verbal line of attack as far as it can go, and then switch to another verbal level which we might abandon when we have to... Many people...insist on a single self-consistent verbal scheme into which they try to ([Location 214](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=214))
+    - Tags: [[orange]] 
+- It is part of the enigma of human nature that the “typical” person—immature, stumbling, inept, lazy—is capable of great dedication and heroism if he is wisely led. ([Location 254](https://readwise.io/to_kindle?action=open&asin=B008K5IPB8&location=254))
+    - Tags: [[orange]] 
