@@ -1,0 +1,2 @@
+### De Profundis
+Come dice OScar Wilde nel suo De profundis: *Morality does not help me. I am a born antinomian. I am one of those who are made for exceptions, not for laws. But while I see that there is nothing wrong in what one does, I see that there is something wrong in what one becomes. It is well to have learned that.
