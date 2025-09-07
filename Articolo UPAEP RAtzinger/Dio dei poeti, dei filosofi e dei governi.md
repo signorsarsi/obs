@@ -1,0 +1,5 @@
+
+In Platone avviene questa doppia visione, poetica e metafisica. 
+Riguardo al Dio dei poeti e dei filosofi, per esempio   nel Fedro, Platone ci dice 247 b-c-d che quando i carri alati arrivano sulla cima del cielo si posano sulla volta e dal li, oltre la volta stesso contemplano ciò che è aldifuori del cielo. "Questo luogo sopraceleste  \[Vedi Reale] **nessuno dei poeti lo cantò mai, nè mai lo canterà in modo degno**. La cosa sta in questo modo, perchè bisogna aver eil coraggio di dire il vero, specialmente se si parla della verità"
+Qui appare che il canto immaginifico del poeta coll'auriga e il cavallobueno e il cattivo, stiano in froma elemntare seppure seducente, raccondo qualcosa che è molto superiore.
+"L'essere che realmente è, senza colore, senza figura e non visibile e che può essere contemplato solo dalla guida dell'anima, ossia dall'intelletto, e intorno a cui verte la conoscenza vera occupa questo luogo., "
