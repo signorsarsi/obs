@@ -1,0 +1,1 @@
+Non solo la identità della materia, ma la sua eternità. il fatto che le strade siano infinite indietro e in avanti in [[On the Vision and the Riddle]] indica che alla base del voler mettere l'assoluto nell basso, abbiamo non solo la materia infinita ma anche il suo tempo infinito. Per cui, in un tempo infinito tutto può accadere
