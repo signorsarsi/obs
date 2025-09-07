@@ -1,0 +1,4 @@
+443 a Ita fiat. Sed prius de summa ac principali omnium, ut dixirnus, diuisione in ea quae sunt et quae non sunt breuiter dicendum existimo.
+........
+443b Nec immerito. lpse namque omnium essentia est, qui solus uere est, ut ait Dionysius Ariopagita: «Esse enim» inquit «omniurn est super esse diuinitas». Gregorius etiam theologus multis rationihus nullam suhstantiam seu essentiam siue uisibilis siue inuisibilis creaturae intellectu ud ratione comprehendi posse confirmat.
+Nam sicut ipse deus in se ipso ultra omnem creaturam nullo intellectu comprehenditur, ita etiam in secretissimis sinibus creaturae ab eo factae et in eo existentis consideratus incomprehensibilis est.
