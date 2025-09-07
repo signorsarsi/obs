@@ -1,0 +1,5 @@
+[Johann von Leers - Wikipedia](https://it.wikipedia.org/wiki/Johann_von_Leers)
+[François Genoud - Wikipedia](https://en.wikipedia.org/wiki/Fran%C3%A7ois_Genoud)
+[Ahmed Huber - Wikipedia](https://en.wikipedia.org/wiki/Ahmed_Huber)
+[Claudio Mutti - Wikipedia](https://it.wikipedia.org/wiki/Claudio_Mutti)
+[Herman Wirth - Wikipedia](https://it.wikipedia.org/wiki/Herman_Wirth)
