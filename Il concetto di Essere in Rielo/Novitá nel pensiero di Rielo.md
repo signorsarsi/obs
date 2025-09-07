@@ -1,0 +1,1 @@
+La novita del Pensiero di Rielo, non é nella concezione genetica trinitaria, Essa 'e gi'a presente nella teologia. Processione del Verbo dal Padrecome fosse . La novitá consiste nell'applicare questa teoria della processione a una nuova definizione di "essere". Ribaltare: non é la metafisica che spiega la teologia ma é la teologia che ridefinisce la metafisica.
