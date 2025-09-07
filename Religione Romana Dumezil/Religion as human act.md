@@ -1,0 +1,4 @@
+"quia talis est quisque, qualis eius dilectio est. Terram diligis? terra eris. Deum diligis? quid dicam? deus eris? Non audeo dicere ex me, Scripturas audiamus: _Ego dixi: Dii estis, et filii Altissimi omnes_ [41](http://www.[[[[Agostino d'Ippona|Agostino]] d'Ippona|augustinus]].it/latino/commento_lsg/omelia_02_note.htm#N41). Si ergo vultis esse dii et filii Altissimi, _nolite diligere mundum, nec ea quae sunt in mundo. Si quis dilexerit mundum, non est caritas Patris in illo. Quia omnia quae sunt in mundo, desiderium carnis est, et desiderium oculorum, et ambitio saeculi, quae non est ex Patre, sed ex mundo_: id est, ab hominibus dilectoribus mundi. _Et mundus transit, et desideria eius: qui autem facit voluntatem Dei, manet in aeternum, sicut et Deus manet in aeternum_ [42](http://www.augustinus.it/latino/commento_lsg/omelia_02_note.htm#N42)_._"
+
+
+[[Agostino d'Ippona]]
