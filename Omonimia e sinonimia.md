@@ -1,0 +1,1 @@
+Aristotele nelle categorie ci indica queti due aspetti che implicnao i due prolemi degli alias 
