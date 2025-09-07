@@ -1,0 +1,6 @@
+[[Petrus Aureolus]] asks : 'Whether any relation exists in extra-mental reality without any activity of the intellect, or if every relation exists only in \[sensitive or intellectual] apprehension.
+ Scriptum super Primum Sententiarum
+
+"For if equality were a thing in act, it would follow that there would be innumerable realities in one subject. For one man is unequal to all the grains of sand that are in the sea and to all the leaves and to the entire coJlection of flowers, and so with other innurrierable things; and so innumerable inequalities \[i.e. relations of inequality] will be in one man. If therefore whatever relation is a thing in act, orie man will be adorned \[and loaded down] with innumerable realities. Similarly if the face of whatever man is ofa different form to the faces of all \[other] men, the man's face will be burdened with innumerable realities, because he will have as many real dissimilitudes and differences of form in [his] face as in a subject as there are [other] men.24"
+
+all citations in Henninger, Mark Gerald. 1989. _Relations: medieval theories, 1250-1325_. Oxford : New York: Clarendon Press ; Oxford University Press
