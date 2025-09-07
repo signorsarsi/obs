@@ -1,0 +1,2 @@
+Da [[Evemero da Messina]] Ritenere gli dei, come divinizzazione di uomini.LA sotria degli dei é la ben piú semplice storie di re, potenti, profeti che divengono la fonte del culto agli dei.
+Divinizzazioen questa che é possibile osservare in tempi recenti nel culto della personalitá (Stalin, Hitler, Berlusconi...Trump)
