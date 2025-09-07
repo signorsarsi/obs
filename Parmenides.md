@@ -1,0 +1,5 @@
+---
+aliases: Parmenide
+---
+
+#people 
