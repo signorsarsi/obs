@@ -1,0 +1,6 @@
+
+**Formatted Bibliography**
+NATALINO IRTI. (2014). _DIRITTO SENZA VERITA_. EDITORI LATERZA.
+
+
+
